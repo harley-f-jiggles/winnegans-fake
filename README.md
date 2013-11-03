@@ -1,4 +1,1 @@
-winnegans-fake
-==============
-
-Es war einer dieser Tage, zu lang um sie zu ignorieren und zu kurz um wirklich etwas gebacken zu bekommen. Es war auch noch einer von der Kategorie »MorgenIstNochSoEiner«. Was für eine Scheiße.
+Es war einer dieser Tage. Zu lang um sie zu ignorieren und zu kurz um wirklich etwas gebacken zu bekommen. Es war dazu noch einer von der Kategorie Doppelpack. Ich wusste was mich erwarten würde. Dachte ich jedenfalls.
